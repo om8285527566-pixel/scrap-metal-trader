@@ -1,2 +1,2 @@
-# scrap-metal-trader
-Royal Scrap Trader - A professional website for buying and selling scrap metals with accurate weighing and best market rates
+SHREYA TRADING CO.
+SHREYA TRADING CO.- A professional website for buying and selling scrap metals with accurate weighing and best market rates
